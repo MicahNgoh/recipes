@@ -1,4 +1,4 @@
- 1. Wash and boil the bitterleaf, then drain.
+1. Wash and boil the bitterleaf, then drain.
 2. Boil the groundnuts, remove their skins if necessary and grind them into a plate.
 3. Cook the meat or fish with salt and seasoning.
 4. Heat the vegetable oil and fry the chopped onions and garlic.
